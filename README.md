@@ -1,1 +1,1 @@
-aslamndf.github.io/Linear-gradient/
+https://aslamndf.github.io/Linear-gradient/
